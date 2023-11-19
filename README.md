@@ -1,0 +1,2 @@
+# functionlar
+linke daxil ol
